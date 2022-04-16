@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cryptonooob
-- 👀 I’m interested in learning about trading
+- 👀 I’m interested in learning about trading cryptos
 - 🌱 I’m currently learning about the blockchain
 - 💞️ I’m looking to collaborate with someone who can help
 
